@@ -1,1 +1,1 @@
-/https://github.com/YaroslavChuchmay/slozhno-sosredotochitsya-ad/
+/https://github.com/YaroslavChuchmay/slozhno-sosredotochitsya-ad
